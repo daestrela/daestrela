@@ -4,7 +4,10 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<!---
+<!---melhor amigo: nicholas e joão gabriel 
+amor da minha vida:Deus
 daestrela/daestrela is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+mae
+Tia de 1
